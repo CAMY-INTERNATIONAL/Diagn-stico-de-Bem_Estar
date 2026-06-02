@@ -1,1 +1,1 @@
-# Diagn-stico-de-Bem_Estar
+# Diagnostico-de-Bem_Estar
